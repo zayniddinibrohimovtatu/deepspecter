@@ -1,8 +1,9 @@
 # Bash Mastery :) Dasturchilar Va Xavfsizlik Mutaxassislari Uchun Qo‘llanma
 
-![image.png](media_Bash%20Mastery%20_\)%20Dasturchilar%20Va%20Xavfsizlik%20Mutaxassislari%20Uchun%20Qo%E2%80%98llanma/nvGJrn017Ozr8K-image.png)
+![photo_2025-01-12_19-23-37](https://github.com/user-attachments/assets/0cb4a7ea-1df6-4480-97fb-39172d88b5ee)
 
-\*\*Mulaif \*\*@Deep\_Specter
+
+Mulaif @Deep_Specter
 
 ***
 
