@@ -2,7 +2,7 @@
 
 ![image.png](media_Bash%20Mastery%20_\)%20Dasturchilar%20Va%20Xavfsizlik%20Mutaxassislari%20Uchun%20Qo%E2%80%98llanma/nvGJrn017Ozr8K-image.png)
 
-\*\*Mulaif \*\*@Deep\_Specter
+Mulaif @Deep_Specter
 
 ***
 
